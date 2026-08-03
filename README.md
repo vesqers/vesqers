@@ -1,29 +1,29 @@
-> 18+ • Any pronouns / preferably he/him
+# Vesqers
 
-***
+18+ • Any Pronouns / but i prefer he/him
+
+---
 
 ## About
+not very talkative until comfortable.
+usually offtab
 
-- mostly quiet
-- western enjoyer
-
-***
-
-## Links
-
-- [Recent Listened](https://open.spotify.com/user/vesqer)
-
-***
+---
 
 ## DNI
-
 - under 16
-- disrespectful people
-- drama searchers
+- hateful people
+- drama
 
-***
+---
 
 ## BYI
+- whispers > public chat
+- slow replies
+- don't take silence personally
 
-- i'm not really talk active
-- i talk like in a flow once i know you better
+---
+
+## Interests
+- rdr2
+- western
