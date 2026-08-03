@@ -1,3 +1,6 @@
+![Uploading 7029-dark.gif…]()
+
+
 Still editing this btw, i never did a readme before!
 ---
 
