@@ -1,7 +1,7 @@
 <img width="398" height="175" alt="7029-dark" src="https://github.com/user-attachments/assets/742960f6-9bdc-4fc1-8eeb-5ebf6e6f19b2" />
 
 
-[![Spotify](https://novatorem.vercel.app/api/spotify)]([https://open.spotify.com](https://open.spotify.com/recents))
+[Spotify](https://img.shields.io/badge/Spotify-Listen%20to%20my%20music-1DB954?style=for-the-badge&logo=spotify)](https://open.spotify.com/recents)
 
 Still editing this btw, i never did a readme before!
 ---
