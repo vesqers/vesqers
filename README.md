@@ -1,3 +1,7 @@
+<p align="center">
+  <img src="[YOUR_IMAGE_LINK_HERE](https://cdn.pfps.gg/banners/7029-dark.gif)" width="100%">
+</p>
+
 # Vesqers
 
 18+ • Any Pronouns / but i prefer he/him
