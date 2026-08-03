@@ -1,7 +1,7 @@
 Still editing this btw, i never did a readme before!
 ---
 
-# About
+### About
 
 18+ • Any Pronouns / but i prefer he/him
 
@@ -10,20 +10,20 @@ usually offtab
 
 ---
 
-# DNI
+### DNI
 - under 16
 - hateful people
 - drama
 
 ---
 
-# BYI
+### BYI
 - whispers > public chat
 - slow replies
 - don't take silence personally
 
 ---
 
-# Interests
+### Interests
 - rdr2
 - music
