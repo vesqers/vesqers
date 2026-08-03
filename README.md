@@ -1,7 +1,5 @@
 <img width="398" height="175" alt="7029-dark" src="https://github.com/user-attachments/assets/742960f6-9bdc-4fc1-8eeb-5ebf6e6f19b2" />
 
-
-Still editing this btw, i never did a readme before!
 ---
 
 ### About
