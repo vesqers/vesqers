@@ -8,11 +8,11 @@
 
 not very talkative until comfortable.
 usually offtab
+C+H anytime
 
 ---
 
 ### DNI
-- under 16
 - hateful people
 - drama
 
