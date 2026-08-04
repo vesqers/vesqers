@@ -6,13 +6,14 @@
 
 18+ • Any Pronouns / but i prefer he/him
 
-C+H anytime!
+C+H always!
 
 not very talkative until comfortable.
 
 ---
 
 ### DNI
+- If under 16 / not strict
 - hateful people
 - drama
 
