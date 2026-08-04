@@ -6,9 +6,9 @@
 
 18+ • Any Pronouns / but i prefer he/him
 
+C+H anytime!
+
 not very talkative until comfortable.
-usually offtab
-C+H anytime
 
 ---
 
