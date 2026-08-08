@@ -13,7 +13,6 @@ not very talkative until comfortable.
 ---
 
 ### DNI
-- If under 16 / not strict
 - hateful people
 - drama
 
