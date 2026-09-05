@@ -28,3 +28,11 @@ not very talkative until comfortable.
 ### Interests
 - rdr2
 - music
+
+---
+
+### Current Shows I'm watching
+- MHA 
+- Angels of Death
+- Ginny & Georgia
+- Money Heist
