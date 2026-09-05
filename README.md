@@ -4,6 +4,8 @@
 
 ### About
 
+You can call me V, Vex, or whatever you prefer.
+
 18+ • Any Pronouns / but i prefer he/him
 
 C+H always!
