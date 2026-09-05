@@ -31,7 +31,7 @@ not very talkative until comfortable.
 
 ---
 
-### Current Shows I'm watching
+### Current Shows
 - MHA 
 - Angels of Death
 - Ginny & Georgia
