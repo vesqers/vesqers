@@ -35,6 +35,10 @@ not very talkative until comfortable.
 
 ### Current Shows
 - MHA 
-- Angels of Death
 - Ginny & Georgia
-- Money Heist
+
+---
+
+### Currently learning
+- drawing
+- editing
