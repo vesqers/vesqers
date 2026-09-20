@@ -4,7 +4,7 @@
 
 ### About
 
-You can call me Vesqer, V, Vex, or whatever you prefer.
+You can call me Vesqer, V, or whatever you prefer.
 
 18+ • Any Pronouns / but i prefer he/him
 
