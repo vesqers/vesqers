@@ -40,3 +40,5 @@ I'm generally pretty chill and don't mind people interacting with me.
 You don't have to worry about being formal — just talk normally.
 
 **Feel free to say hi, even if I'm quiet.**
+
+Btw you can always ask me for supporter advantages in party!
