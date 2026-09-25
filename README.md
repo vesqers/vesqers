@@ -23,8 +23,8 @@ I'm not very talkative and can be pretty dry, so don't take it personally.
 
 ## INTERESTS
 
-🎮 **Red Dead Redemption 2**
-🎵 **Music**
+- 🎮 **Red Dead Redemption 2**
+- 🎵 **Music**
 
 ## DNI
 
