@@ -1,6 +1,6 @@
 # ✦ Vesqser / Vex
 
-> **18+ · any pronouns · c+h welcome**
+> **page is still in progress**
 
 ## ABOUT ME
 
