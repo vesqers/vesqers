@@ -12,7 +12,7 @@ I'm not very talkative and can be pretty dry, so don't take it personally.
 * **Pronouns:** Any
 * **C+H:** Welcome
 
-* **Discord: Vesqser**
+* **Discord:** Vesqser
 
 ## BYI
 
