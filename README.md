@@ -12,6 +12,8 @@ I'm not very talkative and can be pretty dry, so don't take it personally.
 * **Pronouns:** Any
 * **C+H:** Welcome
 
+* **Discord: Vesqser**
+
 ## BYI
 
 * Whispers / DMs are preferred
@@ -40,8 +42,6 @@ I'm generally pretty chill and don't mind people interacting with me.
 You don't have to worry about being formal — just talk normally.
 
 Btw you can always ask me for supporter advantages for a party!
-
-**Discord: Vesqser**
 
 **Feel free to say hi, even if I'm quiet.**
 
