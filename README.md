@@ -2,13 +2,6 @@
 
 > **page is still in progress**
 
-
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31nucypp5vvo5hle4gkexvpnmpm4&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=9af9f3">
-  </a>
-</p>
-
 ## ABOUT ME
 
 You can call me **Vesqser**, **Vex**, or honestly whatever you prefer.
@@ -30,10 +23,6 @@ I'm not very talkative and can be pretty dry, so don't take it personally.
 * Don't expect me to be very talkatives
 * If I don't reply, I'm probably just away or don't know what to say
 
-## INTERESTS
-
-- 🎮 **Red Dead Redemption 2**
-- 🎵 **Music**
 
 ## DNI
 
@@ -42,6 +31,19 @@ I'm not very talkative and can be pretty dry, so don't take it personally.
 * Anyone who intentionally causes unnecessary conflict
 
 Just be respectful and we're good.
+
+
+## INTERESTS
+
+- 🎮 **Red Dead Redemption 2**
+- 🎵 **Music**
+
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31nucypp5vvo5hle4gkexvpnmpm4&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=9af9f3">
+  </a>
+</p>
 
 ## ✦ EXTRA
 
