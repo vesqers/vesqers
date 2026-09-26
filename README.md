@@ -24,6 +24,12 @@ I'm not very talkative and can be pretty dry, so don't take it personally.
 * If I don't reply, I'm probably just away or don't know what to say
 
 
+## INTERESTS
+
+- 🎮 **Red Dead Redemption 2**
+- 🎵 **Music**
+
+
 ## DNI
 
 * Hateful people
@@ -32,18 +38,6 @@ I'm not very talkative and can be pretty dry, so don't take it personally.
 
 Just be respectful and we're good.
 
-
-## INTERESTS
-
-- 🎮 **Red Dead Redemption 2**
-- 🎵 **Music**
-
-
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31nucypp5vvo5hle4gkexvpnmpm4&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=9af9f3">
-  </a>
-</p>
 
 ## ✦ EXTRA
 
@@ -54,3 +48,8 @@ Btw you can always ask me for supporter advantages for a party!
 
 **Feel free to say hi, even if I'm quiet.**
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31nucypp5vvo5hle4gkexvpnmpm4&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=9af9f3">
+  </a>
+</p>
