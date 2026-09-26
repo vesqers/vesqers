@@ -41,7 +41,7 @@ You don't have to worry about being formal — just talk normally.
 
 Btw you can always ask me for supporter advantages for a party!
 
-Discord: Vesqser
+**Discord: Vesqser**
 
 **Feel free to say hi, even if I'm quiet.**
 
