@@ -1,10 +1,10 @@
-# ✦ Vesqser / Vex
+# ✦ Vesqer / Vex
 
 > **page is still in progress**
 
 ## ABOUT ME
 
-You can call me **Vesqser**, **Vex**, or honestly whatever you prefer.
+You can call me **Vesqer**, **Vex**, or honestly whatever you prefer.
 
 I'm not very talkative and can be pretty dry, so don't take it personally.
 
