@@ -8,7 +8,7 @@ You can call me **Vesqer**, **Vex**, or honestly whatever you prefer.
 
 I'm not very talkative and can be pretty dry, so don't take it personally.
 
-* **Age:** 18+
+* **Age:** 16+
 * **Pronouns:** Any
 * **C+H:** Welcome
 
