@@ -1,4 +1,4 @@
-# ✦ Vesqer / Vex
+# ✦ Vesqser / Vex
 
 > **page is still in progress**
 
