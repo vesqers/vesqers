@@ -28,6 +28,7 @@ I'm not very talkative and can be pretty dry, so don't take it personally.
 
 - 🎮 **Red Dead Redemption 2**
 - 🎵 **Music**
+- 🚗 **Cars**
 
 
 ## DNI
@@ -42,7 +43,6 @@ Just be respectful and we're good.
 ## ✦ EXTRA
 
 I'm generally pretty chill and don't mind people interacting with me.
-You don't have to worry about being formal — just talk normally.
 
 Btw you can always ask me for supporter advantages for a party!
 
