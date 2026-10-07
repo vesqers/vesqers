@@ -8,7 +8,7 @@ You can call me **Vesqer**, **Vex**, or honestly whatever you prefer.
 
 I'm not very talkative and can be pretty dry, so don't take it personally.
 
-* **Age:** 16+
+* **Age:** 18+
 * **Pronouns:** Any
 * **C+H:** Welcome
 
@@ -20,7 +20,8 @@ I'm not very talkative and can be pretty dry, so don't take it personally.
 * I'm slower with public chat
 * I may take a while to respond
 * I don't always know how to keep conversations going
-* Don't expect me to be very talkatives
+* Don't expect me to be very talkative
+* -> i can be very talk-active when i like a conversation 
 * If I don't reply, I'm probably just away or don't know what to say
 
 
