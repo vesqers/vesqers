@@ -1,10 +1,10 @@
-# ✦ Vesqser / Vex
+# ✦ Vex / Weasel
 
 > **page is still in progress**
 
 ## ABOUT ME
 
-You can call me **Vesqer**, **Vex**, or honestly whatever you prefer.
+You can call me **Vex**, **Weasel**, or honestly whatever you prefer.
 
 I'm not very talkative and can be pretty dry, so don't take it personally.
 
@@ -12,7 +12,7 @@ I'm not very talkative and can be pretty dry, so don't take it personally.
 * **Pronouns:** Any
 * **C+H:** Welcome
 
-* **Discord:** Vesqser
+* **Discord:** Vesqser / Waszumwas
 
 ## BYI
 
@@ -44,8 +44,6 @@ Just be respectful and we're good.
 ## ✦ EXTRA
 
 I'm generally pretty chill and don't mind people interacting with me.
-
-Btw you can always ask me for supporter advantages for a party!
 
 **Feel free to say hi, even if I'm quiet.**
 
