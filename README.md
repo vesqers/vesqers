@@ -53,7 +53,3 @@ I'm generally pretty chill and don't mind people interacting with me.
   </a>
 </p>
 
-<p align="center">
-<img width="1774" height="887" alt="Zweifarbiger Blick aus der Dunkelheit" src="https://github.com/user-attachments/assets/cedf6805-871f-456c-b147-41ad89f39ac9" />
-
-
