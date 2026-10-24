@@ -2,8 +2,6 @@
 
 > **page is still in progress**
 
-![Profile views](https://gpvc.arturio.dev/[vesqers])
-
 
 ## ABOUT ME
 
