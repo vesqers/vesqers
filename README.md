@@ -2,6 +2,9 @@
 
 > **page is still in progress**
 
+![Profile views](https://gpvc.arturio.dev/[vesqers])
+
+
 ## ABOUT ME
 
 You can call me **Vex**, **Weasel**, or honestly whatever you prefer.
