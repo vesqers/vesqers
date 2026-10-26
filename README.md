@@ -1,56 +1,35 @@
+<div align="center">
+
+<!-- TOP DECORATION -->
+<img src="https://github.com/user-attachments/assets/30f1461a-b6a5-4736-80a2-82a4126ee98d"
+     width="850">
+
+<br>
+
 # ✦ Vex / Weasel
+![](https://komarev.com/ghpvc/?username=Waszumwas&style=plastic)
 
-> **page is still in progress**
-
+<br>
 
 ## ABOUT ME
 
-You can call me **Vex**, **Weasel**, or honestly whatever you prefer.
+You may call me **Vex**, **Weasel**, or honestly whatever you prefer.
 
-I'm not very talkative and can be pretty dry, so don't take it personally.
+**Age:** 18+<br>
+**Pronouns:** Any<br>
+**C+H:** Welcome<br>
 
-* **Age:** 18+
-* **Pronouns:** Any
-* **C+H:** Welcome
+**Discord:** Vesqser
 
-* **Discord:** Vesqser / Waszumwas
-
-## BYI
-
-* Whispers / DMs are preferred
-* I'm slower with public chat
-* I may take a while to respond
-* I don't always know how to keep conversations going
-* Don't expect me to be very talkative
-* -> i can be very talk-active when i like a conversation 
-* If I don't reply, I'm probably just away or don't know what to say
-
-
-## INTERESTS
-
-- 🎮 **Red Dead Redemption 2**
-- 🎵 **Music**
-- 🚗 **Cars**
-
-
-## DNI
-
-* Hateful people
-* People looking for drama
-* Anyone who intentionally causes unnecessary conflict
-
-Just be respectful and we're good.
-
-
-## ✦ EXTRA
-
-I'm generally pretty chill and don't mind people interacting with me.
-
-**Feel free to say hi, even if I'm quiet.**
+<br>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31nucypp5vvo5hle4gkexvpnmpm4&cover_image=true&theme=default&show_offline=false&background_color=0d1117&interchange=false&profanity=false&hide_remaster=false&bar_color=ffffff">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31nucypp5vvo5hle4gkexvpnmpm4&cover_image=true&theme=default&show_offline=true&background_color=0d1117&interchange=false&profanity=false&hide_remaster=false&bar_color_cover=true">
   </a>
 </p>
 
+<!-- BOTTOM DECORATION -->
+page is still in progress
+
+</div>
